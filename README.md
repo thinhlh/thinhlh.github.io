@@ -1,2 +1,3 @@
 # thinhlh.github.io
-Con gà
+Tên miền anh mới mua 
+Của 2 đứa mình hoi nha :> 
